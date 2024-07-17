@@ -14,6 +14,6 @@ Fortunately I found ur github id so I decide to contact u with this.
 
 Hope to contact soon & see this message asap.
 
-Plz share ur information.
+Plz share ur information here.
 
 Best regards.
