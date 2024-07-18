@@ -32,3 +32,8 @@ We have to plan a meeting to understand your background and your skills
 let's have a meeting today at 06.30 Rome time
 
 https://meet.google.com/zto-eguv-gtx
+
+
+## Response
+
+Okay
