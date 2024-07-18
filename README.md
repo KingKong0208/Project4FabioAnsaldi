@@ -17,3 +17,14 @@ Hope to contact soon & see this message asap.
 Plz share ur information here.
 
 Best regards.
+
+
+## Response
+
+hello there
+I am glad to hear yuo agin
+Actually I tried to contact you but I were not able to do that, you have right 
+We have to plan a meeting to understand your background and your skills 
+
+let's have a meeting today at 06.30 Rome time
+https://meet.google.com/zto-eguv-gtx
